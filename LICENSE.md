@@ -1,4 +1,4 @@
-# 
+# Enhance DaVinci Resolve for PC | DaVinci Resolve for Windows with DaVinci Resolve for PC | DaVinci Resolve for Windows vip Template: collaboration-tools & timeline-editing, the #1
 
 
 
